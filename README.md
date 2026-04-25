@@ -1,2 +1,1 @@
-# GodFirst-Techonologies
-A company that sells phones &amp; accessories 
+Discover the latest smartphones and accessories from top brands. Quality guaranteed, prices unbeatable.
